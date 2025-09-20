@@ -14,3 +14,12 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+# Hey, I'm brainyspex
+### she/her
+##### It's a Doctor Who reference 👓
+
+
+- Crochet fiend
+- Waiting for my D&D group to schedule another game
+- Keep forgetting to feed my Neopets
